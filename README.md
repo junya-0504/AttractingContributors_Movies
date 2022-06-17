@@ -9,7 +9,7 @@ Tell me please!
 4. 米澤穂信　Nobuho Yonezawa
 5. 綿矢りさ　　Risa Wataya
 6. 村上春樹
-7. 久保宣章
-8. 尾田栄一
-
+7. 椎名誠　Shina Makooto
+8. 久保宣章
+9. 尾田栄一
 
