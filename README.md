@@ -10,3 +10,6 @@ Tell me please!
 5. 綿矢りさ　　Risa Wataya
 6. 村上春樹
 7. 西尾維新 Nishio Ishin
+8. 椎名誠　Shina Makooto
+9. 久保宣章
+10. 尾田栄一
